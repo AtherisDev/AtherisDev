@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AtherisDev
+- 👋 Hi, I’m AtherisDev
 - 👀 I’m interested in Video Games, Music and Programming!
 - 🌱 I’m currently cyber security.
 - 📫 How to reach me : You can add me on discord! Username : atherisdev
