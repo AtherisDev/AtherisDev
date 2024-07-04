@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AtherisDev
 - 👀 I’m interested in Video Games, Music and Programming!
-- 🌱 I’m currently learning nothing, since i wanna focus on other things
+- 🌱 I’m currently cyber security.
 - 📫 How to reach me : You can add me on discord! Username : atherisdev
 - 🎮 Favorite Games : Doki Doki Literature Club! ; Hollow Knight
 
